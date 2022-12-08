@@ -1,0 +1,1 @@
+# 6Laba_Suhorukov
